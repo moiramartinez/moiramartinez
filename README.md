@@ -1,4 +1,4 @@
-- Estudiante de Sociología
+- Licenciada en Sociología
 - Universidad de Chile
 
 
